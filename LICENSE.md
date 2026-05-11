@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for macOS professional Transition: normalization & 4K-export offers the most advanced Adobe Premiere Pro for macOS transition, with normalization and 4K-export.
 
 
 
